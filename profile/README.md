@@ -1,8 +1,6 @@
 ## Just a couple of Moths frying some games 🦋🍳🎮
 
-We'll publish anything we finish to our Itch.io
-
-https://itch.io/profile/mothfriedgames
+https://mothfriedgames.neocities.org/
 
 <!--
 
